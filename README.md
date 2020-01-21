@@ -1,5 +1,4 @@
 # Webstume - Essentials for the Webs!!
-Webstume - Essentials for the Webs!!
 
 Webstume's Top Quality Service
 We Design What You Want!
